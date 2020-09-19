@@ -1,1 +1,1 @@
-<img src="https://visitor-badge.glitch.me/badge?page_id=page.id" alt="visitor badge"/>
+<img src="https://media.tenor.com/images/3b388fe03da271d2674faf85eb7c3fcd/tenor.gif" alt="">
